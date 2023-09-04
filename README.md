@@ -2,6 +2,6 @@ Hi, I’m @BlackPearlBP, i’m interested in games, music, movies, books and phi
 
 I’m currently learning Front-End programming.
 How to reach me:
-  Reddit - @pizzalord1985
+  Reddit - WIP
     Twitter - WIP
-      E-mail - WIP
+      E-mail - brunnopedro.oliveira@gmail.com
